@@ -3,7 +3,7 @@
 
 #### Front End Developer 💻
 
-#### all the world 🌍
+#### All the world 🌍
 
 #### Contact cullen.maiten@gmail.com :rocket: 
 
